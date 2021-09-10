@@ -1,5 +1,5 @@
-Just do your fuckin' job man you have to just copy and 
-Run the code 👍
+Can someone give me the quantum key of QX34 Supercomputer. 😂
+
 
 <!---
 deeky007/deeky007 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
