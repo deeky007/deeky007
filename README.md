@@ -1,4 +1,6 @@
-Can someone give me the quantum key of QX34 Supercomputer. 😂
+" Everyone is dead , just some
+          people are declared "
+
 
 
 <!---
