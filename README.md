@@ -1,5 +1,5 @@
-" Everyone is dead , just some
-          people are declared "
+Everyone is dead , just some
+          people are declared 
 
 
 
